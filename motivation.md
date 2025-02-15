@@ -7,9 +7,9 @@ We did it! 🎓 From late-night study sessions to overcoming every challenge thr
 As we step into this new chapter, let’s keep lifting each other up! 🌍 Whether it’s innovating, creating, or simply making the world a little kinder, I know *we’ll make a difference*.  
 
 Let’s stay connected and cheer each other on:  
-🔗 **LinkedIn**: [Your LinkedIn Profile] – Let’s grow *professionally* and celebrate milestones!  
-🐦 **Twitter**: [Your Twitter Handle] – For daily insights, laughs, and *occasional* chaos.  
-💻 **GitHub**: [Your GitHub Profile] – Let’s collaborate, code, and build something *awesome*.  
+🔗 **LinkedIn**: https://linkedin.com/in/lenchoajema – Let’s grow *professionally* and celebrate milestones!  
+🐦 **Twitter**:https://x.com/lenchoajema  – For daily insights, laughs, and *occasional* chaos.  
+💻 **GitHub**:https://github.com/lenchoajema – Let’s collaborate, code, and build something *awesome*.  
 
 The future is ours to shape—*together*. 💛  
 *P.S. Drop your profiles below too! Let’s keep this network thriving.* 🙌  
